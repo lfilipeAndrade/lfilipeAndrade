@@ -11,7 +11,7 @@
 
 - ⚡ Fun fact **I love to play chess and soccer ❤**
 
-<h3 align="left">Connect with me:</h3>
+
 <p align="left">
 </p>
 
